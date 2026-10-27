@@ -1,2 +1,7 @@
-# HAPPY-BIRTHDAY-
-happy birthday 
+# HAPPY BIRTHDAY SAYANGG
+
+happy birthday to u sayanggg!! selamat bertambah usiaa bb, di umur yang ke 19 inii aku berdoa semoga kamu selaluu dalam lindungan Allah Swt. selaluu sehatt, selaluu baikk, dan menjadii seseorang yang selaluu ingin tumbuh menjadii lebih baikk. jadi pribadi yang lebih baikk buat diri sendirii dan orang lainn yaa sayang. aku ga nyangka bakalan ngucapin long teks ini buat kamu and hopefully it will always be like that, it will never leave my life again cintakuu🤍🤍
+
+my wish for you on your birthday, whatever you ask may you receive, whatever you are looking for may you find it, whatever you want may it be fulfilled on your birthday, I hope you will walk on this journey knowing that you are mine baby, I hope even if things sometimes don't go your way you won't stop trying, you won't give up on yourself and in your last days, I hope you will remind yourself From this word "you deserve better, you deserve to be loved and celebrated in any way!! I really hope and pray for you, may you continue to be given health, abundance, surrounded by good and useful people, my love..
+
+aku akan jadi seseorang yang selalu bangga sama kamu, sama perjalanan” kamu nanti, sama semuaa yg kamuu lakuinn. aku akan selaluu support keinginan kamuu, hobi kamuu, dan hal hal lain yg kamuu lagii tekuninn. aku akan selalu disini nemenin kamuu, kalo kamu butuhin orang buat hal "apapun" kabarin aku okayy? aku akan selaluu ada buat kamuu dimanapun dan kapan punn, i will always endeavour for that honey if you feel your world feels heavy, i'm here who can make a little joy and tranquillity for you dear, i will continue to be here to accompany you, be a place to complain to you, your story, to be a home that is not in the form of a house🏡
